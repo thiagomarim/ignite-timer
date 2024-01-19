@@ -1,4 +1,4 @@
-![capa-ignite-timer](https://github.com/thiagomarim/ignite-timer/assets/137715251/07505b0f-0c0e-422f-92cd-a15d986fec5c)
+![capa-ignite-timer](https://github.com/thiagomarim/ignite-timer/assets/137715251/1bcaf7fd-81da-4f36-a8c0-b4009fbde21c)
 
 <br>
 
